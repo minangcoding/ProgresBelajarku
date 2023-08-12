@@ -12,3 +12,5 @@ Saya melakukan perjalanan ke faunaland bersama kia
   * saya foto sama kia dengan kura kura
   * kia foto dan vidio sama kambing unta shaound sheep
   * kia ngasih makan singa dan sholat dan lain lain
+
+dan pulang naik krl juga lewat stasiun ancol
