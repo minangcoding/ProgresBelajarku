@@ -3,7 +3,7 @@ Repository ini berisi pengalaman belajarku di Dicoding
 
 
 11 agustus 2023
-Saya melakukan perjalanan ke faunaland bersama **kia**
+Saya melakukan perjalanan ke faunaland bersama**kia**
   * Disana kami sampai sebelum jumat lalu sholat jumat dulu baru naik bus wara wiri
   * lalu mutar mutar klomplek Ancol lalu sampai di faunaland
   * Kami melihat pertama masuk dari jarak jauh sekelompok primata
